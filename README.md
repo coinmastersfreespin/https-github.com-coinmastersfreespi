@@ -2,7 +2,7 @@
 
 Are you an avid Coin Master player looking for ways to get free spins and boost your progress in the game? Well, you’re in luck! In this article, we'll uncover the most effective and safe methods to get **free spins** on Coin Master, plus share an exclusive offer you won't want to miss. Make sure to check out the offer at the end, and don’t forget to accept it for a chance to claim some valuable rewards.
 
-### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
+### [👉CLICK HERE TO GET NOW FREE👈](https://todaylink.site/Coinspins)
 
 Coin Master has become a wildly popular mobile game, blending elements of slot machines, adventure, and village-building mechanics. Players can unlock free spins to play the slots and win rewards like coins, chests, and pet food. However, getting spins through regular gameplay can be slow, and many players are eager to find ways to speed up their progress.
 
